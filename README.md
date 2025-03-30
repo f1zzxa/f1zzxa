@@ -10,7 +10,7 @@
 </p>
 
 <p align="center">
-:: 𝐌𝐀𝐈𝐍 𝐅𝐀𝐍𝐃𝐎𝐌𝐒: hsr, identity v, pj sekai, danganronpa, yttd, alien stage
+:: 𝐌𝐀𝐈𝐍 𝐅𝐀𝐍𝐃𝐎𝐌𝐒: hsr, identity v, pj sekai, danganronpa, yttd, serial experiments lain
 
 <p align="center">
 can be rude sometimes but mostly i'm joking so don't take everything to heart 
