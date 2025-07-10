@@ -26,7 +26,7 @@ can be rude sometimes but mostly i'm joking so don't take everything to heart
 ![tumblr_350948ec00889de7d3307a7a63b54628_a5f6aab6_100](https://github.com/user-attachments/assets/57c243ff-d3fd-4646-83cc-6afb32231b88)
 ![tumblr_0fb2ea12f2467ff8ab1df885e985d706_dc339160_100](https://github.com/user-attachments/assets/17015bf5-ac19-489c-b052-426492329198)
 ![tumblr_82a7327c0a0faa2688003225b5044aa2_10b277ba_100](https://github.com/user-attachments/assets/28619739-1979-4ab5-987f-c413f2f511fc)
-![tumblr_d9ce551cf57af88025122f15be31dd10_f6ed578e_100](https://github.com/user-attachments/assets/54376b9f-652d-4b05-9abd-51399d94d4b1)
+<img width="99" height="56" alt="tumblr_4e1751f61f437d3efec6a2839df77b54_33bbe960_100" src="https://github.com/user-attachments/assets/4d872436-2a46-4298-8323-a5f4879b5600" />
 ![tumblr_b0dec7c3b83aec513697f23e53128c82_8db4512d_100](https://github.com/user-attachments/assets/9295af79-d804-42d9-a067-d4a37c918be5)
 ![tumblr_9807fb1ac0d78a408e6bb409b7e7e8ec_4f7b0cbc_250](https://github.com/user-attachments/assets/ab6c24b7-7494-4be5-aeed-27a89d179af1)
 ![tumblr_e1d698b9d084f8ad34d84aaef589bf6d_47aadfd4_100](https://github.com/user-attachments/assets/8bf50c16-c13e-441a-867b-9821b221f935)
