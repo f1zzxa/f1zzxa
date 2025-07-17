@@ -7,7 +7,7 @@
 
 
 ㅤ<p align="center">
- ![](https://komarev.com/ghpvc/?username=f1zzxa&style=for-the-badge&color=7a2228&label=♱) 
+ 
 
 <p align="center">
 :: #777 ♰
