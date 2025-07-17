@@ -14,10 +14,7 @@
 :: #777 ♰
 
 <p align="center">
-♰╰ ꜝꜝ fitsa :: ENTP so7w8sx sang-chol :: 17.05 ⸝⸝ 
-
-<p align="center">
-✶ can be rude sometimes but mostly i'm joking so don't take everything to heart ✶
+♰╰ ꜝꜝ [INFO](https://f1zzxainfo.straw.page/) ⸝⸝ 
  
   
 </p>
