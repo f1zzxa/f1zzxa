@@ -13,8 +13,8 @@
 <p align="center">
 :: #777 ♰
 
-<p align="center">
-♰╰ ꜝꜝ fitsa :: ENTP so7w8sx sang-chol ⸝⸝ 
+
+─────────────────────────────────── ⋆⋅ ♰╰ ꜝꜝ [STRAWPAGE INFO](https://f1zzxainfo.straw.page/) ⸝⸝ ───────────────────────────────────
  
   
 </p>
