@@ -14,7 +14,7 @@
 :: #777 ♰
 
 <p align="center">
-♰╰ ꜝꜝ [INFO](https://f1zzxainfo.straw.page/) ⸝⸝ 
+♰╰ ꜝꜝ fitsa :: ENTP so7w8sx sang-chol ⸝⸝ 
  
   
 </p>
