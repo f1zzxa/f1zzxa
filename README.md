@@ -1,6 +1,7 @@
 <img width="2000" height="100" alt="tumblr_cd45dd3e7cfbd8667a4e967f782f31b9_a0a6c134_2048 (2)" src="https://github.com/user-attachments/assets/93930b25-ecf2-4e82-b81d-3d808861e6f9" />
 
-<img width="2000" height="200" alt="a6edd505fba519a003f42f1569db22b5 (2)" src="https://github.com/user-attachments/assets/6da4576f-48de-4bdc-b301-684beedcc4dc" />
+<img width="2000" height="200" alt="photo_2025-08-01_02-59-19" src="https://github.com/user-attachments/assets/8a9e5aa9-1175-42ad-820d-c9d8c162e6e1" />
+
 
 <img width="2000" height="100" alt="tumblr_cd45dd3e7cfbd8667a4e967f782f31b9_a0a6c134_2048" src="https://github.com/user-attachments/assets/a953a5a2-3a10-46bc-9c65-ec08e8faac72" />
 
